@@ -1,0 +1,1 @@
+# The-Adverse-Effects-of-Climate-Change.-Solutions-and-Strategies
